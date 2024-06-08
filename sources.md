@@ -19,6 +19,27 @@ H. R. McMaster (National Security Advisor)
 John Brennen (Former CIA Director under Trump)
 Rex Tillerson (Former Sec of Defense)
 
+
+Rex Tillerson
+==================================
+ 
+Former Secretary of State Rex Tillerson painted a scathing picture of his old boss President Donald Trump as someone who made uninformed decisions that were not based in reality – a stark contrast to Trump’s top diplomat Mike Pompeo, who is heaping praise on the outgoing President in his final days in office.
+
+“His understanding of global events, his understanding of global history, his understanding of U.S. history was really limited. It’s really hard to have a conversation with someone who doesn’t even understand the concept for why we’re talking about this,” Tillerson said in a lengthy interview with Foreign Policy
+
+https://www.cnn.com/2021/01/15/politics/tillerson-foreign-policy-interview/index.html
+ 
+In a rare public appearance since he was fired from office, former Secretary of State Rex Tillerson called President Donald Trump “undisciplined” and claimed that Trump would often ask him to do things unaware that such actions would violate the law.
+
+“When the President would say, ‘Here’s what I want to do and here’s how I want to do it.’ And I’d have to say to him, ‘Well Mr. President, I understand what you want to do, but you can’t do it that way. It violates the law. It violates treaty,’” Tillerson said Thursday night at a fundraiser in Houston for the MD Anderson Cancer Center, according to video of the event posted by CBS News.
+
+He went on to add, “He got really frustrated … I think he grew tired of me being the guy every day that told him you can’t do that and let’s talk about what we can do.”
+
+
+
+https://www.cnn.com/2018/12/07/politics/rex-tillerson-donald-trump/index.html
+
+
 H. R. McMaster (National Security Advisor)
 ==================================
 
@@ -28,15 +49,6 @@ In February 2018, McMaster said that it was "incontrovertible" that Russia inter
 
 
 
- James Clapper (Former Director of National Intelligence)
- ============================
-CLAPPER: In all that time in intelligence, in one capacity or another, I’ve seen a lot of bad stuff, but never anything to disturb me as much as what I came to understand, comprehend, what the Russians were doing to meddle in the fundamental pillars of our political system. So when [candidate Trump] was exhorting an adversary of ours — which, in my mind, is the primary threat these days — to help him by going and finding allegedly 30,000 missing emails of Hillary Clinton, that to me is unconscionable and inappropriate and unheard of. There’s no time in our his"
-
-GAZETTE: He later claimed he was joking.
-
-CLAPPER: He wasn’t joking any more than he was joking that he wants American citizens to behave like North Koreans do for leader Kim Jong-un. He wasn’t joking about that either.
-
-https://news.harvard.edu/gazette/story/2018/06/clapper-frets-over-past-damage-present-shortcomings-future-threats-to-us-intelligence/
 
 John Brennen (Former CIA Director under Trump)
 =======================
